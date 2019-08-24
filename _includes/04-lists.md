@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+* R.E. :green_book:
+* Genealogy :family:
+* Career :computer:
+  * Customer/Technical Support
