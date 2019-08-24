@@ -1,1 +1,1 @@
-[LinkedIn profile for Amber](https://www.linkedin.com/in/amber-diehl/)
+[Amber's LinkedIn Profile](https://www.linkedin.com/in/amber-diehl/)
