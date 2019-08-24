@@ -1,22 +1,22 @@
 Transformational Customer Support Leader with experience in providing exceptional customer support while managing high-performing teams, optimizing workflows and maximizing productivity in a fast-paced, multi-channel SaaS environment. 
 
-*Areas of Expertise Include:*
+**Areas of Expertise Include:**
 
-**Team Building & Leadership**
+*Team Building & Leadership*
 
-**Training & Development**
+*Training & Development*
 
-**Technology Implementation**
+*Technology Implementation*
 
-**Process Improvement**
+*Process Improvement*
 
-**Project Management**
+*Project Management*
 
-**Escalation Management**
+*Escalation Management*
 
-**Relationship Building**
+*Relationship Building*
 
-**Problem Resolution**
+*Problem Resolution*
 
-**Quality Assurance**
+*Quality Assurance*
 
